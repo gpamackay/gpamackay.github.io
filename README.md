@@ -1,2 +1,0 @@
-# gpamackay.github.io
-trialling
